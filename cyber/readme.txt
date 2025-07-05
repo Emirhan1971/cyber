@@ -1,0 +1,1 @@
+Bu projedeki tüm kodu ben yazmadım kullanmak için izin isteyiniz.
